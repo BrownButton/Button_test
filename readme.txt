@@ -7,7 +7,7 @@ dak
 ad
 kad
 kda
-kdak
+흥식 바보
 ad
 kda
 kda
